@@ -1,1 +1,1 @@
-# tgs-abilash.github.io
+# tgs-bot.me/tgs
